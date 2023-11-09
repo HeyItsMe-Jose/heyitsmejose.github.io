@@ -1,2 +1,0 @@
-# heyitsmejose.github.io
-Hello
